@@ -10,3 +10,5 @@ Aun así, Okuz seguía dividido entre lo que deseaba y lo que creía correcto. E
 Finalmente, Okuz tomó la decisión más difícil de su vida: abandonar su lugar en la Nación del Fuego y buscar al Avatar, no como enemigo, sino como aliado. Su camino hacia el perdón no fue fácil. Cuando encontró al Equipo Avatar, fue recibido con desconfianza y hostilidad. Pero Okuz, por primera vez, actuó con humildad. Enseñó a Aang el arte ancestral del fuego control, enfrentó los errores de su pasado y, sobre todo, se reconcilió con su tío Iroh, quien lo recibió con los brazos abiertos y un amor incondicional.
 
 En el enfrentamiento final, Okuz desafió a su padre, enfrentó a Azula y ayudó a Aang a restaurar la paz al mundo. Dejó de buscar la aprobación de otros y encontró el honor dentro de sí mismo. Su viaje, lleno de caídas y redenciones, lo convirtió en un verdadero líder, demostrando que incluso los más perdidos pueden encontrar su camino hacia la luz.
+fin. 
+
